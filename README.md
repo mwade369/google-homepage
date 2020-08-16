@@ -1,0 +1,1 @@
+This is going to be a long journey I think. I currently have 0 skills. hopefully I can finish this fake google page by the end of the month or I'll feel like an incompetent buffoon. At that time I hope that I think back to the either beef short ribs or tri tip that I made on 8/16/2020.
